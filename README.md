@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Afridi356
 - 👀 I’m interested in App & Web Development
 - 🌱 I’m currently learning about App Development
-- 💞️ I’m looking to collaborate on community
+- 💞️ I’m looking to collaborate with community
 - 📫 How to reach me Contact me with my email ID
 - 😄 Pronouns: He/Sir/Him
 - ⚡ Fun fact: everything is erasable
